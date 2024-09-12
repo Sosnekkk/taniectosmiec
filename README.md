@@ -1,7 +1,9 @@
 
 APLIKACJA TANECZNA
 
-![image](https://github.com/user-attachments/assets/a69606c2-ac8a-4be6-936b-3ba6cc35367b) ![image](https://github.com/user-attachments/assets/64994b36-94b9-4a23-83a3-b08f16bac290)
+![image](https://github.com/user-attachments/assets/a69606c2-ac8a-4be6-936b-3ba6cc35367b) ![image](https://github.com/user-attachments/assets/18efda62-83ec-4c7a-95ab-d1717f7f2955)
 
 
-![image](https://github.com/user-attachments/assets/41a99835-d427-43dd-b8ae-3f7d9b023442)
+
+![image](https://github.com/user-attachments/assets/3616e57e-1ba1-4551-9ae2-a56f4e37043e)
+
